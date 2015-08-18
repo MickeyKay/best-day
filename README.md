@@ -1,7 +1,7 @@
 # In the best version of this day, I would. . .
 
 ### 08/18/15
-* Build something cool
+* Build something cool that makes a difference in many people's lives
 * Exercise
 * Play with some puppies or kittens
 * Teach something
