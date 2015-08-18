@@ -1,6 +1,17 @@
 # In the best version of this day, I would. . .
 
-## 08/17/15
+### 08/18/15
+* Build something cool
+* Exercise
+* Play with some puppies or kittens
+* Teach something
+* Practice a new language
+* Check out a new tool
+* Drink some good coffee
+* Have structure
+* Problem-solve in a communal setting with inspiring people
+
+### 08/17/15
 * Save a life
 * Build something used by thousands
 * Create a new solution
