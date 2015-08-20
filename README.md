@@ -1,5 +1,12 @@
 # In the best version of this day, I would. . .
 
+### 08/20/15
+* See a friend
+* Feel like I accomplished/finished something
+* Get to 5pm and feel ready to be fully in relationship time
+* Complete a house project
+* Check in with >= 1 family member
+
 ### 08/18/15
 * Build something cool that makes a difference in many people's lives
 * Exercise
