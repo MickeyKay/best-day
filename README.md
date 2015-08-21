@@ -1,11 +1,20 @@
 # In the best version of this day, I would. . .
 
+### 08/21/15
+* Meditate
+* Read some philosophy
+* Feel excited about my activities for the day
+* Act out of love and connection
+* Feel relaxed, like there's no rush
+* Manage my time intentionally
+* Do the spiritual stuff first, the logistical stuff second
+
 ### 08/20/15
 * See a friend
 * Feel like I accomplished/finished something
 * Get to 5pm and feel ready to be fully in relationship time
 * Complete a house project
-* Check in with >= 1 family member
+* Check in with @ least 1 family member
 
 ### 08/18/15
 * Build something cool that makes a difference in many people's lives
