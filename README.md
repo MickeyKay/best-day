@@ -1,5 +1,12 @@
 # In the best version of this day, I would. . .
 
+### 08/22/15
+* Play bball with some friends
+* Meditate
+* Come up with a front yard concept I feel excited & solid about
+* Talk to dad about NWTA staff assignments
+* Make a good coffee
+
 ### 08/21/15
 * Meditate
 * Read some philosophy
