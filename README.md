@@ -1,5 +1,14 @@
 # In the best version of this day, I would. . .
 
+### 08/23/15
+* Drink a good coffee
+* Hang with Britt
+* Visit American Soil and get materials ideas for path, edging, wall
+* Finish purpose challenge
+* Dig in the garden a bit
+* Talk with @ least one fam
+* Meditate
+
 ### 08/22/15
 * Play bball with some friends
 * Meditate
