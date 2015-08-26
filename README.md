@@ -1,5 +1,12 @@
 # In the best version of this day, I would. . .
 
+### 08/25/15
+* Talk with mom re: animal/software ideas and next steps
+* Meditate
+* Connect with heart early on in the day and proceed from there
+* Chat with Braad re: desire to make something cool
+* Try alternate featherlight script to see if it works
+
 ### 08/23/15
 * Drink a good coffee
 * Hang with Britt
