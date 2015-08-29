@@ -1,5 +1,11 @@
 # In the best version of this day, I would. . .
 
+### 08/29/15
+* Play bball
+* Talk to mom about purpose challenge
+* Take care of James' cat
+* Set up base of Transitions' site
+
 ### 08/25/15
 * Talk with mom re: animal/software ideas and next steps
 * Meditate
