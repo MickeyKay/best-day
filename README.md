@@ -1,5 +1,12 @@
 # In the best version of this day, I would. . .
 
+### 08/30/15
+* Meditate early
+* Meet with Jeff to discuss web prospects - maintain center and intention
+* Email on Seth's behalf re: scholarship (connect with friend)
+* Have some time to read
+* Go swimming - cool off
+
 ### 08/29/15
 * Play bball
 * Talk to mom about purpose challenge
