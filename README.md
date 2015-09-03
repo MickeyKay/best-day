@@ -1,5 +1,13 @@
 # In the best version of this day, I would. . .
 
+### 09/03/15
+* Read some Buddhist lit
+* Exercise
+* Meditate
+* Call mom
+* Get gift for Jake
+* Contact dr.'s
+
 ### 08/30/15
 * Meditate early
 * Meet with Jeff to discuss web prospects - maintain center and intention
